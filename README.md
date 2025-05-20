@@ -100,4 +100,4 @@
 
 ---
 
-👉 _More about myself: <a href="[https://linktr.ee/caesarmario_](https://www.linkedin.com/in/gulivindala-siva-durga-pavan-633a1b262?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)"> here </a>_
+👉 _More about myself: <a href="https://www.linkedin.com/in/gulivindala-siva-durga-pavan-633a1b262?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app"> here </a>_
